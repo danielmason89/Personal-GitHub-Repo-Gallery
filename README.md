@@ -1,1 +1,1 @@
-# Website design for Seasons Lawn Care
+# Daniel Mason's personal GitHub repo gallery
